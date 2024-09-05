@@ -13,3 +13,4 @@ Meu nome é Luidy Fernando
 - luidy
 
 ![carro](https://media.tenor.com/XRD6GpNu9KQAAAAM/supra-mk4.gif)
+!(https://media1.tenor.com/m/-JEA6yfqAzUAAAAC/initial-d-aura.gif)
